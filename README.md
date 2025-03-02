@@ -2,7 +2,7 @@
 Fortnite External Using New Bypass Method And Hook Working Through A Disguised Exe. 
 
 <p align="center">
-    <img src="https://imgur.com/a/JoY85JJ"> 
+    <img src="https://github.com/MultiHackFN/Working-Fortnite-External/blob/main/image.png"> 
 </p>    
           
 ## Preface  
